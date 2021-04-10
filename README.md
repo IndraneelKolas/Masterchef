@@ -1,1 +1,1 @@
-# Masterchef
+# Ratatouille is a classic Provencal French vegetable stew recipe. ... Originating in the 18th Century in the Provencal region of Nice, it is known as a peasants stew created by poor farmers that needed to use up the harvest of the fresh summer vegetables that had ripened all at once and were ready to eat from the garden.
